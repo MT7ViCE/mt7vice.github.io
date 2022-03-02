@@ -2,5 +2,5 @@
 
 
 
-[Link](url) https://linktr.ee/MT7Esports ![Image](src)
+[Link](url) https://linktr.ee/MT7Esports (url)[Link]
 
