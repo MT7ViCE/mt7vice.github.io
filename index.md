@@ -1,5 +1,3 @@
-## Welcome to MT7ViCE
-
 ## Website Under development
 
 [Twitter](https://twitter.com/Mt7Vice)  
