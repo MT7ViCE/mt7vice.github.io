@@ -1,4 +1,4 @@
-## Welcome to MT7ViCE.github.io
+## Welcome to MT7ViCE
 
 ## Website Under development
 
