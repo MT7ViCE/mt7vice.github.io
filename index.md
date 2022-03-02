@@ -1,6 +1,10 @@
 ## Welcome to MT7ViCE.github.io
 
+## Website Under development
 
-
-[MT7ViCELinktree](https://linktr.ee/MT7Esports)  
-
+[Twitter](https://twitter.com/Mt7Vice)  
+[Instagram](https://www.instagram.com/mt7vice/)  
+[YouTube](https://www.youtube.com/channel/UC-yRcMRkDIt-xawvQt0FEZQ)
+[Discord](https://discord.com/invite/nQwPJ4JGBR)  
+[Reddit](https://www.reddit.com/r/MT7ViCE/)  
+[Twitch](https://www.twitch.tv/mt7vice)  
