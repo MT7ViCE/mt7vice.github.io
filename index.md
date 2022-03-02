@@ -2,5 +2,5 @@
 
 
 
-[Link](url) https://linktr.ee/MT7Esports (url)[Link]
+[MT7ViCELinktree](https://linktr.ee/MT7Esports)  
 
